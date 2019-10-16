@@ -21,7 +21,7 @@ Besides everything I have learnt at Makers Academy, most of my skills were devel
 * #### Work with people:
     In a brigade, you depend on your colleagues. I have mentored and trained people since my first role as a pastry chef in 2011. In 2014, when I took over as Paul's head pastry chef, these skills were crucial in my ability to make my kitchen an engaging and productive workplace. I recruited and taught chefs from various backgrounds and skill levels, sometimes with no experience, and realised how much **I** ended up learning myself.
 
-    I thrive when I work with others, either making the best out of their knowledge to grow, or sharing mine and see them become better everyday. I believe empathy should be a priority. I believe synergy in a group is the key to success. Whether it's baking eclairs or writing code, working and succeeding as a cohesive team is one of the best experiences life has to offer.
+    I thrive when I work with others, either making the best out of their knowledge to grow, or sharing mine and see them become better everyday. I believe empathy should be a priority. I believe synergy in a group is the key to success. Working and succeeding as a cohesive team is one of the best experiences life has to offer.
 
 * #### Work under pressure:
     The common idea of kitchens being a stressful place has some truth in it. It _IS_ fast-paced and physically taxing. But the feeling of achievement one gets once it's all done is hard to describe. Making 1300 heart-shaped cakes in a day on Valentine's Day on top of the usual production, that definitely teaches you to go above and beyond!
