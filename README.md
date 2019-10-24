@@ -1,5 +1,7 @@
 # Guillaume Liard
 
+_liard.guillaume@gmail.com_
+
 ### **Who I am**
 
 I have been a pastry chef, and a restaurant chef for the past 10 years. As much as I have loved working in kitchens, it had started to become an unfulfilling routine, with little challenge to offer.
