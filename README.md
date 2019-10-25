@@ -71,7 +71,7 @@ Besides everything I have learnt at Makers Academy, most of my skills were devel
     - Started learning hot kitchen skills in a gastro-pub in 2017, worked as a chef since then.
         
 #### Anything else?
-- Founded an American football club in my small hometown of Castres in France when I was 16.
-- I tend to binge-watch conferences on YouTube, on subject ranging from functional programming to quantum mechanics or even game design.
-- Reached Champion 2 rank in Rocket League
-- Love a good table tennis game, despite my obvious lack of skill.
+    - Founded an American football club in my small hometown of Castres in France when I was 16.
+    - I tend to binge-watch conferences on YouTube, on subject ranging from functional programming to quantum mechanics or even game design.
+    - Reached Champion 2 rank in Rocket League
+    - Love a good table tennis game, despite my obvious lack of skill.
